@@ -1,1 +1,0 @@
-# MY LIFE.github.com
